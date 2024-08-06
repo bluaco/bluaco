@@ -1,5 +1,1 @@
-🟄
-aco/acorn
-demigirl/nonbinary 
-17 yrs o.
-🟄 󠁛󠀣󠁦󠁦󠁦󠁦󠁦󠁦󠀬󠀣󠀸󠀶󠁡󠁢󠁤󠁣󠁝
+🟄 aco/acorn 🟄 demigirl/nonbinary 🟄 she/they 🟄
